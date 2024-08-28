@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Jojoajoestar
+# 👋 Hi, I'm Jojo
 
 ### ⚡ About Me
 
